@@ -1,2 +1,0 @@
-# Growtopia
-Welcome
